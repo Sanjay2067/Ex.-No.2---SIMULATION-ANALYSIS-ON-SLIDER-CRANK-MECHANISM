@@ -41,7 +41,7 @@
 ![Screenshot 2025-04-22 103145](https://github.com/user-attachments/assets/7fecf6a8-160f-478d-9fe4-c149cdee90d2)
 
 
-### Name:MAGENDRA SANJAY 2
+### Name:MAGENDRA SANJAY S
 ### Register Number: 212224040179
 
 ## RESULT:
